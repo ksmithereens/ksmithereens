@@ -21,3 +21,6 @@
 
 ## My Links
 [Go to Insta](https://instagram.com/khaleel.smth) 
+
+## Dept of Design
+[Design Department](https://www.ewu.edu/cstem/design/)
