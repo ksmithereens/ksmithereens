@@ -1,4 +1,4 @@
-![Lionel Richie](https://media.giphy.com/media/UCTaYoiR7pD2okgFK1/giphy.gif)
+![Lionel Richie](LionelRichieDance.webp)
 
 
 # Khaleel Smith
